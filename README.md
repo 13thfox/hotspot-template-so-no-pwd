@@ -1,1 +1,1 @@
-# hotspot-template-so-no-pwd
+# hotspot-template-so- Voucer & Member
